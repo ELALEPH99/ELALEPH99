@@ -5,16 +5,16 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on me
-- 🌱 I’m currently learning about fire
-- 👯 I’m looking to collaborate on nothing
-- 🤔 I’m looking for help with my head
-- 💬 Ask me about your future
+- 🔭 I’m currently working on 
+- 🌱 I’m currently learning about 
+- 👯 I’m looking to collaborate on 
+- 🤔 I’m looking for help with 
+- 💬 Ask me about your 
 - 📫 How to reach me: 
 - 😄 Pronouns: 
-- ⚡ Fun fact: jeje
+- ⚡ Fun fact: 
 -->
 
-¡[img] https://www.rtve.es/television/20211209/alpes-suizos-viajar-visitar/2237471.shtml
+¡[img]  
 
 
